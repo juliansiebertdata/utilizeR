@@ -40,8 +40,28 @@ Resistenz
 
 wasserrückhalt in der fläche
 
+2 - durchwurzelzbg gehen die Wurzeln in die Aggregate oder bildet sich irgendwo ein wurzelfilz?
+
+Wenn zu dicht gelagert kann ich biologisch sanieren oder brauche ich einen tiefenlockerer.
+
+durchwurzelung ist 1
+
+feldgefügeansprache im herbst
+Herbst
 
 
+3 - regenwurmgänge am Boden und an der Seite schauen
 
 
+4 - 40% krümel, 60% polyeder schwenken nach Blume sind die Aggregate stabil unter wasserzugabe? 
 
+
+unterboten mehr polyeder (asiatische aggregierung eher suboptimal) wenig Ton eher rsue kanten, Ton eher scharfe kanten
+
+eisenoxidanreicherung 
+
+messerprobe subjektiv für lagerungsdichte
+
+Keine unterbodenverdichtung
+
+rote Knöllchen sind aktiv wegen des läghämoglobins das Sauerstoff bindet für sauerstoffmangel der nitrogenase
