@@ -14,4 +14,10 @@ pseudogley ist eisenoxid in den Aggregate da Wasser von kben über röhren kommt
 
 gley ist eknsenoxide an den Makroporen, da Wasser von unten kommt und an den Mikrofonen das Eisen oxidiert.
 
+plaggeneschauflage.humos. ziegelstückchen, kohlestückchen, große Steine sind Grenze des plaggenhorizonts
+
+pflughorizont, humuseibteag bis 30cm
+
+regenwurmgänge mit humuseintrag
+
 
