@@ -20,4 +20,28 @@ pflughorizont, humuseibteag bis 30cm
 
 regenwurmgänge mit humuseintrag
 
+Wasser und nähestoffhlt durch geschiebelehm aus der saale Eiszeit 13000 Jahre her
+
+wichtige Charakteristika 
+
+infiltrationsrate -> Aufnahme, erosionsvermeidung, pflanzenwachstum
+
+wasserspeicherfähigkeit, wasserhaltefähigkeit 10 bis 50 microporen und mesoporen,  Verdichtung, trockenrogdichte, durxhwurzelbar, sperrschichten, aggregierung,krümelgefügeanteil des Bodens,
+
+Regenwürmer, eps extrazelluläre Polymere substanzen
+
+
+feldgefügeanspraxhe für 
+
+Sechszylinder für porengrößenverteilung
+
+erosionsgefahr aggregatstabilität und Wassergehalt also physische resistenz
+Resistenz
+
+wasserrückhalt in der fläche
+
+
+
+
+
 
