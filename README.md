@@ -9,3 +9,9 @@ It contains the following things
 - **Quarto Templates** For documents i regulary use. (e.g. Project Reports, Presentations, Lab Protocols etc.)
 
 
+
+pseudogley ist eisenoxid in den Aggregate da Wasser von kben über röhren kommt.
+
+gley ist eknsenoxide an den Makroporen, da Wasser von unten kommt und an den Mikrofonen das Eisen oxidiert.
+
+
